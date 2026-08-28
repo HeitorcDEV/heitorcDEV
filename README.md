@@ -64,6 +64,4 @@ Busco uma oportunidade de Estágio ou Desenvolvedor Junior na área de Tecnologi
 
 📱 WhatsApp / Telefone: (83) 99873-2938
 
-💼 LinkedIn: (Adicione o link do seu perfil do LinkedIn aqui)
-
-💻 GitHub: (Adicione o link do seu perfil do GitHub aqui)
+💼 LinkedIn: (https://www.linkedin.com/in/heitor-javert-marques-chaves-097651278/)
